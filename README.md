@@ -2,4 +2,4 @@
 
 # dex ds dev joxan rewq gho >>>>>>>>>>>>>>>>>>>>>>>>>. racisz macaron goodbye seel chmurek zajchu zsl
 
-elo
+Top Zjeby: @racisz @zajchu1337 @wajwuz 
